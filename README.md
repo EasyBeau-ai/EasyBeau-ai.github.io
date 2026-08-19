@@ -1,2 +1,2 @@
 # EasyBeau.github.io
-Revolutionising Clear Aligners for the AI Era
+Revolutionising Facial Aesthetics for the AI Era
